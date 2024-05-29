@@ -3,8 +3,7 @@
 - 🌱 I’m currently coding but not a genius...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me send email on wamarejosh@gmail.com
-- tel.0743894198...
-- 😄 Pronouns:just always available
+- tel.0743894198.
 facebook..wamare dasiker
 instragram.wamare josh
 twitter/x wamare josh
